@@ -18,6 +18,6 @@
 
 
     خرید وی پی ان  ⤹  کلیک کنید   ↓
-   https://multivpd.site/pricing.php
+   https://multi.website/pricing.php
 
  ⤴   ⤴   ⤴   ⤴
