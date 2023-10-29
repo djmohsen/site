@@ -18,6 +18,6 @@
 
 
     خرید وی پی ان  ⤹  کلیک کنید   ↓
-   https://multi.website/pricing.php
+   hooray
 
  ⤴   ⤴   ⤴   ⤴
